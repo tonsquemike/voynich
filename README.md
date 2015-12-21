@@ -1,4 +1,4 @@
-Vonych
+Voynich
 ==
 ![](https://voynichthoughts.files.wordpress.com/2013/04/cropped-v_bg.jpg)
 
